@@ -1,5 +1,10 @@
 # Job-Amplexor-Acolad-Fullremote
 
+## Les avantages clefs de la société
+- Un contexte VRAIMENT interneational
+- Une culture du télétravail et de la confiance => autonomie
+- Des possiblités d'évolution en France et à l'international
+
 ## The company
 We are a global leader in language, content, and digital solutions.
 For more than 30 years, we have been helping renowned organizations grow their brands internationally through innovative websites,
