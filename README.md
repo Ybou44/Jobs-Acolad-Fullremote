@@ -1,7 +1,7 @@
 # Job-Amplexor-Acolad-Fullremote
 
 ## Les avantages clefs de la société
-- Un contexte VRAIMENT interneational
+- Un contexte VRAIMENT international
 - Une culture du télétravail et de la confiance => autonomie
 - Des possiblités d'évolution en France et à l'international
 
